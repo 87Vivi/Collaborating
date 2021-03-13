@@ -5,9 +5,9 @@ I am Viviana, I come from Italy, studied there Tourism. After my degree I moved 
 
 I have a three years old son, a cute little boy, named Maxim. We have a lot of fun together, mostly outside exploring ever new Parks and Playgrounds.
 
-My hobbies are playing Ukulele, I started about six months ago and it is a lot of fun; jogging and I love travel.
+My hobbies are playing Ukulele, I started about six months ago and it is a lot of fun; jogging and I love travel. I did never travel outside Europe, so my dream is to start soon with that. 
 
-Another of my hobbies is cooking, I do it almost everyday. I like to experiment new recipes and also to coke with other people. following one of my favorite.
+Another of my hobbies is cooking, I do it almost everyday. I like to experiment new recipes and also to coke with other people. Following one of my favorite.
 
 ---
 
