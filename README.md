@@ -20,6 +20,11 @@ Another of my hobbies is cooking, I do it almost everyday. I like to experiment 
 -13 gr salt
 -about 300 ml water
 
+
+**Picture from Lorenzo**
+
+![Friendly pizza](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS4zo__lxXv-jDQ4b-GgXCWVdkKksgTeANMmg&usqp=CAU)
+
 ---
 
 ### Travel ###
